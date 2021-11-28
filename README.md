@@ -3,3 +3,5 @@ Ich bin Andrew und neben dem Programmieren ist es mir eine Herzensangelegenheit,
 Um den Menschen zu helfen, lieber früher als später rauchfrei zu werden, gibt es in diesem Artikel einige Informationen darüber, was Tabak so süchtig macht und wie lange es dauert, bis man Nichtraucher/in wird.
 
 Kannst du dir vorstellen, mit deinen Freunden oder Familienmitgliedern zum Abendessen zu gehen und nichts Leckeres essen zu können, weil du Diabetiker bist? Oder eine Geburtstagsparty ohne Kuchen zu feiern?
+
+Mehr Infos unter https://www.hypnose-oldenburg.net/raucherentwoehnung/
